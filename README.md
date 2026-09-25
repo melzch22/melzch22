@@ -16,3 +16,4 @@ Hello! My name is Melany Chaparro ☼<br>I'm a Senior at New Jersey Institute of
 [![](https://komarev.com/ghpvc/?username=melzch22&icon=0&color=8)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+📄 My Resume --> https://drive.google.com/file/d/13tQyH8Yn3GaMN6ScYwKg_--etJNyvr9J/view?usp=sharing
